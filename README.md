@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @ChariyaH28
-- 👀 I’m interested in Tecnology And Ai And Gaming 
-- 🌱 I’m currently learning For O/L 
+- 👋 Hi, I’m MR SHADOW
+- 👀 I’m interested in Technology And Ai And Gaming 
+- 🌱 I’m currently learning For A/L
 - 💞️ I’m looking to collaborate on No No...
-- 📫 How to reach me Chariyah
-- 😄 Pronouns: Eww
+- 📫 How to reach me MR SHADOW
+- 😄 Pronouns: Eww Lolla
 - ⚡ Fun fact: Boru Marisi Danna Epah
 
 <!---
